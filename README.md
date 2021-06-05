@@ -1,1 +1,0 @@
-# Bickey-Zothanpuia
